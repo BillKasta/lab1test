@@ -1,1 +1,1 @@
-QUIZ: https://forms.gle/2S5H1HvT5vsazXqA8
+For QUIZ click [here](https://forms.gle/2S5H1HvT5vsazXqA8).
